@@ -2,4 +2,4 @@
 idk
 import skrt
 francooooooooooooooo
-la tua tipa poppa perc
+la tua bitch poppa perc
